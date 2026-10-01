@@ -16,9 +16,9 @@
 *勤能補拙*
 
 ### 我最喜歡的網站
-
 [Netflix](https://www.netflix.com/browse)
 
+![替代文字](https://pgw.udn.com.tw/gw/photo.php?u=/photo/2023/12/15/0/28244089.jpg&x=0&y=0&sw=0&sh=0&exp=3600)
 
 ### 我喜歡的一句話
 
